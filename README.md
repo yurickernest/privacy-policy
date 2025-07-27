@@ -2,7 +2,7 @@
 
 _Last updated: July 27, 2025_
 
-**Bolt Expo Native Wind** ("we", "our", or "us") is committed to protecting your privacy. This Privacy Policy describes how we collect, use, and disclose your information when you use our app.
+**Bottle Match - Memory Game** ("we", "our", or "us") is committed to protecting your privacy. This Privacy Policy describes how we collect, use, and disclose your information when you use our app.
 
 ---
 
